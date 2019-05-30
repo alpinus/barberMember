@@ -1,1 +1,1 @@
-希望能有始有终
+Hopefully good start with an good end.
